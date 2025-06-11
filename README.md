@@ -14,7 +14,7 @@ Your gateway to efficient Web3 airdrop farming, backed by reliable infrastructur
 * Full client onboarding  
 * Dedicated support channels  
 * Continuous updates
-Full FAQ: [Telegam](https://t.me/+fcM2azr2o5o3MGU6)
+* Full FAQ: [Telegam](https://t.me/+fcM2azr2o5o3MGU6)
 
 
 
